@@ -1,4 +1,4 @@
-# 
+# Chime Desktop offers fee-free online banking with early payday, savings accounts, and no hidden charges.
 
 
 
